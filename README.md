@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ShefewElliot
-- 👀 I’m interested in the Militart
+- 👀 I’m interested in the Military
 - 🌱 I’m currently learning how to shoot a firearm
 - 💞️ I’m looking to collaborate on [N/A]
 - 📫 How to reach me https://discord.gg/puNMexm2F8
